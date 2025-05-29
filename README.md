@@ -18,17 +18,15 @@ i apologize for any slowness / OVERBEARING SILLINESS
 
 ## dni
 
-    minors / anyone without their age on their page
+- minors / anyone without their age on their page
 
-    rude, aggressive etc personalities
+- rude aggressive personalities
 
-    anti-int, gatekeepers etc
-
-    systems, irls, anti-doubles etc
+- anti-int, gatekeepers etc
 
 ## int
 
-if u fixate on any of these things ....... PLZ (plz) int w me!!!
+if u fixate on [any of these things](https://wip9000.carrd.co/#interests) ....... PLZ (plz) int w me!!!
 
 i am constantly looking for new medias / fandoms / shows / music / etc to get into!! IF U THINK ILL LIKE SMTH NEW feel free to suggest it 2 me!
 
