@@ -18,11 +18,13 @@ i apologize for any slowness / OVERBEARING SILLINESS
 
 ## dni
 
-- minors / anyone without their age on their page
+- **minors / anyone without their age on their page**
 
 - rude aggressive personalities
 
 - anti-int, gatekeepers etc
+
+- systems, irls etc
 
 ## int
 
