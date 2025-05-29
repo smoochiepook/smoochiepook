@@ -16,6 +16,22 @@ beware if i am online i may be high [pro-recovery]
 
 i apologize for any slowness / OVERBEARING SILLINESS
 
+dni.
+
+    minors / anyone without their age on their page
+
+    rude, aggressive etc personalities
+
+    anti-int, gatekeepers etc
+
+    systems, irls, anti-doubles etc
+
+## int
+
+if u fixate on any of these things ....... PLZ (plz) int w me!!!
+
+i am constantly looking for new medias / fandoms / shows / music / etc to get into!! IF U THINK ILL LIKE SMTH NEW feel free to suggest it 2 me!
+
 ##
 
 i strongly encourage and welcome ALL interactions!!! 
@@ -30,3 +46,4 @@ friend reqs welcome as long as u int w me somehow
 i often lose connection / disconnect randomly please do not take it personally at all!!
 
 i am autistic and mentally ill please be patient w me
+
