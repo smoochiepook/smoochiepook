@@ -16,4 +16,17 @@ beware if i am online i may be high [pro-recovery]
 
 i apologize for any slowness / OVERBEARING SILLINESS
 
+##
+
+i strongly encourage and welcome ALL interactions!!! 
+i am specifically looking for new and unique friends within this community ^w^
+(esp lone wolvessss i see u .....)
+
+anypony can join me / sit with me in silence or talk to me!
+i accept all boops cuddles kisses items crowns hearts etc feel free 2 give me literally anything !!! they all make me rly happy to see + i luv to reciprocate
+
+friend reqs welcome as long as u int w me somehow
+
+i often lose connection / disconnect randomly please do not take it personally at all!!
+
 i am autistic and mentally ill please be patient w me
