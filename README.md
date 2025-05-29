@@ -26,7 +26,7 @@ i am autistic and mentally ill please be patient w me
 
 - anti-int, gatekeepers etc
 
-- systems, irls etc
+- systems, irls etc (i simply dont care sorry!)
 
 ## int
 
