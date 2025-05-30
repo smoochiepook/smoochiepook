@@ -5,7 +5,7 @@ for my main page [click here](https://wip9000.carrd.co/)
 ## byi
 
 **plz SHOOT ME A WHISPER if you wanna chat or say smth to me!!**  
-***i am off-tab OFTEN and i genuinely do not wanna miss your message***  
+**i am off-tab OFTEN and i genuinely do not wanna miss your message**
 i may be slow to respond but please dont let that discourage you from int! i promise i WILL eventually get back to you!!
 
 i very freely int w ponies who strike my interest so i apologize if i unknowingly interact w someone that happens to be on my dni!  
@@ -35,7 +35,9 @@ if u fixate on [any of these things](https://wip9000.carrd.co/#interests) ......
 
 i am constantly looking for new medias / fandoms / shows / music / etc to get into!! IF U THINK ILL LIKE SMTH NEW feel free to suggest it 2 me!
 
-##
+## about 
+
+im buddy! im 23 and i use [any pronouns](https://en.pronouns.page/@smoochiepook)
 
 - i **strongly encourage and welcome ALL interactions!!!**
 i am specifically looking for new and unique friends within this community ^w^
